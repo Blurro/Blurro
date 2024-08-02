@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Blurro
-I use Scratch lol
-- 📫 How to reach me ... Blurro#4327
+I likey SciAdv and Sonic thats bout it
+- 📫 How to reach me ... @blurro on Disc
 
 <!---
 Blurro/Blurro is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
